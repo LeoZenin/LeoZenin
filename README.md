@@ -2,7 +2,7 @@
 
 ## Loisirs
 
-Mes passe temps préféré :+1: sont :
+Mes passe temps préféré ❤️ sont :
 
 * Le Sport dont :
   * Le badminton que je pratique en club. [Lien du facebook du club de l'AGDBL](https://www.facebook.com/AuGrezDuBadLionnais/) 🏸
